@@ -1,4 +1,4 @@
-### Meu nome e Alesandra maria 💙💙
+### Meu nome e Alesandra maria :
 
 
 
@@ -9,3 +9,5 @@
 ### Você entra em contato comigo 📫
 
 000113944122xsp@al.educacao.sp.gov.br
+
+alesandrasantossk@gmail.com
